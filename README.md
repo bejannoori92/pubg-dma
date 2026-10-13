@@ -1,6 +1,7 @@
-PUBG DMA V2 UPDATE FOR LAST GAME ENJOY
+PUBG DMA  UPDATE FOR LAST GAME ENJOY
 for any problems join discord 
-v1 v2 v3 v4 all ready to use 
+all in one 
+6 game dma is free
 free
 update ✅ done 
 last update working 
