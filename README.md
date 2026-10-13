@@ -6,3 +6,4 @@ all in one
 free
 update ✅ done 
 last update working 
+https://discord.gg/KTfqXk5gAs
